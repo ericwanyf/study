@@ -1,1 +1,1 @@
-# study
+# study by myself
